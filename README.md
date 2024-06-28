@@ -2,7 +2,7 @@
 ### ☁☁☁☁☁☁✨☁☁☁⭐☁☁☁☁☁☁☁☁☁🛸🎇🎇☁☁
 ### ⭐☁☁☁☁✨☁☁☁☁☁☁☁☁☁☁⭐☁☁☁☁☁☁🎇🎇
 ### Hi! Welcome to my profile
-ℹ My name is Juan Ignacio and i'm 21 years old. <br>
+ℹ My name is Juan Ignacio and i'm 22 years old. <br>
 📍 I'm from Córdoba, Argentina.
 
 <!--
